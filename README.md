@@ -1,1 +1,1 @@
-for learning
+For Learning
